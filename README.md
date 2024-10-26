@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Lho-Sheyi
+- 👀 I’m interested in Website and Application Development 
+- 🌱 I’m currently learning Website Development and Design 
+- 💞️ I’m looking to collaborate on various web/apps projects
+- 📫 You can reach me through: lho.sheyi@gmail.com
+- ⚡ Fun fact: ... I'm an introvert who enjoy keeping my own company 🤗
